@@ -14,8 +14,11 @@
 - I love to develop a lot of projects in order to solve problems
 
 
+ - I design and develop Experiences that make people's lives simple
 
 
 
 
---->
+
+
+--->  Connect with me on 
